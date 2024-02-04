@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me varshatamvada@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: The biggest lego build I have done had 5000+ pieces
+- ⚡ Fun fact: Spent 3 days non-stop during winter break on a Lego build
 
 <!---
 varstamvada/varstamvada is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
