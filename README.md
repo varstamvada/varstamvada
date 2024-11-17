@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @varstamvada
-- 👀 I’m interested in bring change through better governance
+- 👀 I’m interested in bringing change through better governance
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me varshatamvada@gmail.com
